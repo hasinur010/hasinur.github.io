@@ -1,1 +1,0 @@
-# hasinur.github.io
